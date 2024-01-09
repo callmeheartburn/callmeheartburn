@@ -9,3 +9,5 @@ Days missed in my daily contribution plan: 3
 12/10/23: lil bit of casual heartbreak, couldn't find the time. i'm really making a habit of this, god damn it \
 24/11/23: genuinely just forgot. i feel like this isn't so bad though life just gets busy yknow \
 16/12/23: touched too much grass, need to work on that
+
+(insert dates here) NYE is special, then took a week to recover from 'vacation'. was a slob, didn't like it. it's time to make some magic
